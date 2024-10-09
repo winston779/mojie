@@ -1,6 +1,6 @@
 # 魔戒机场官网地址
 
-最新地址：[mojie.me](https://mojie.host/#/register?code=hN2R1zTe)
+最新地址：[mojie.me](https://mojie.app/#/register?code=hN2R1zTe)
 
 ## 魔戒介绍
 
